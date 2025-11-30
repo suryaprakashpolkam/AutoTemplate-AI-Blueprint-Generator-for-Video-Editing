@@ -1,0 +1,1 @@
+# AutoTemplate-AI-Blueprint-Generator-for-Video-Editing
